@@ -1,4 +1,4 @@
-# Boas vindas ao meu perfil 💙💙
+# Boas vindas ao meu perfil 🍀
 Meu nome é Leticia Cecilia
 
 Estou estudando na Alura;
